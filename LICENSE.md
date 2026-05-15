@@ -1,4 +1,4 @@
-# 
+# rare Plugin for Vegas Pro for PC | Vegas Pro for Windows - slow-motion and batch-processing is the best Vegas Pro for PC | Vegas Pro for Windows plugin, featuring slow-motion and
 
 
 
